@@ -1,1 +1,0 @@
-# Shri-Panchami-Global-Gears
